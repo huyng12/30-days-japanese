@@ -1,5 +1,7 @@
 # 毎日の生活
 
+コメントがあったら、[「Google Docs」を行く →](https://docs.google.com/document/d/1La5T8BaMQhSj5t4YRuew5P6Li2UaWzIyKt2Bx2uRKoE/edit?usp=sharing)
+
 私は、毎日、５時半に起きます。起きたら、すぐに歯を磨いて、うがいをします。
 それから、メールをチェックします。６時に、バイクで大学へ行きます。４５分かかります。
 大学に来てから、食べ物を買います。私の好きな朝食はラーメンとおこわと肉バインミーです。
