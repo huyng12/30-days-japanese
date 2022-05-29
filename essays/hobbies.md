@@ -1,5 +1,7 @@
 # わたしの楽しみ
 
+コメントがあったら、[「Google Docs」を行く →](https://docs.google.com/document/d/12YKZ5dvT9PcIuLNPTDNS3X7qz1r6MaS-OYot57I0aWw/edit?usp=sharing)
+
 私は日本語の音楽を聞くことと、本を読むことが大好きです。毎週末に、
 本屋へ行って、本を買います。新しい本の匂いはとてもいいですよ。今、
 「ZEN」の本を読んでいます。その内容はシンプルな生活の芸術について
