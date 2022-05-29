@@ -1,6 +1,6 @@
 # あなたの週末はどうでしか？
 
-コメントがあったら、[「Google Docs」を行く →](https://docs.google.com/document/d/1_7Joc9WAxJMKg73oVpHlKtuYBhISLyAFprW0wczrn9A/edit?usp=sharing)
+コメントがあったら、[「Google Docs」へ行く →](https://docs.google.com/document/d/1_7Joc9WAxJMKg73oVpHlKtuYBhISLyAFprW0wczrn9A/edit?usp=sharing)
 
 週末に働かなかったり、勉強しなかったり、何もしません。でも、今週は忙しでした。
 仕事は全部完成したところです。ちょっとしんどいです。昨日にたくさんお皿を洗いましたり、
