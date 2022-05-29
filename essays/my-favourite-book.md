@@ -1,6 +1,6 @@
 # 私の好きな本
 
-コメントがあったら、[「Google Docs」を行く →](https://docs.google.com/document/d/1sbbHUw-2UmNiaTvzft407O0b8VwPXavtckGglIc3qKg/edit?usp=sharing)
+コメントがあったら、[「Google Docs」へ行く →](https://docs.google.com/document/d/1sbbHUw-2UmNiaTvzft407O0b8VwPXavtckGglIc3qKg/edit?usp=sharing)
 
 昨日「ZEN」を読んでいることと言いました。この本は私の一番好きな本です。毎日、読んでいます。
 今、皆さんにその本を紹介したいです〜。内容はシンプルな生活の芸術について書きます。本の作家は枡野俊明で、
