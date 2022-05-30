@@ -11,4 +11,4 @@
 いい人の仕方を教えています。子供と遊んで、子供と旅行しています。働きませんから、
 投資で利益を得ています。未来を知りませんが、わたしができると思っています。
 
-![将来](https://user-images.githubusercontent.com/66771508/170925102-736be949-f14e-4536-93ad-fed7211a05c4.jpeg)
+![将来](https://user-images.githubusercontent.com/66771508/170925321-e584a0a1-1d7a-4427-8be6-00dd9cb49802.png)
